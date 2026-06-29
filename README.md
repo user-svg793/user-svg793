@@ -5,4 +5,5 @@
 - 📖 Learn your work children while I 🕺 DANCE 🕺 OFF!
 - 💬 Witnessing crazy family road trips every single weekend 🤦‍♂️
 - 👪 How to reach me? I'm here @ TGI Mondays at 3AM to 3AM
-- ⚡ Fun fact: I'm user-svg793. I have more brainpower than you are.
+- ⚡ Fun fact: I'm user-svg793.
+- 🏠 I live in... {Nice try}.
